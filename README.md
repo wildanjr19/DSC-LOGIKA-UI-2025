@@ -1,0 +1,1 @@
+# Data Science Competition LOGIKA UI 2025
